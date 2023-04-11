@@ -1,3 +1,3 @@
 # EE368_SUSTech_Reference
 
-This is just a file.
+The updator is on his midterm, waiting for upgrating...
